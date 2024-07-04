@@ -1,2 +1,2 @@
 # Modern chair
- 
+A modern chair is designed to blend functionality with aesthetic appeal, suitable for various contemporary applications. Typically, it features sleek lines, minimalist design, and often incorporates materials like metal, molded plastic, or wood with innovative finishes. These chairs are versatile, suitable for home, office, or public spaces, offering ergonomic support and comfort without compromising on style.
